@@ -4,7 +4,7 @@ Aasimar Warlock playing in the campain [Man vs. Owlbear](../Campaigns/Man_vs_Owl
 
 ## **Appearance**
 ![right|link=RAT|thumb|500px|Rat's appearance ](/images/RAT.jpg)
-
+She has white translucent hair now.
 ## **Personality**
 Rat hides scraps and trinkets away in many pockets. She is a little animalistic at times. She embraces changes, it's the natural order, she aims to misbehave. 
 
